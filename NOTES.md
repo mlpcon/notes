@@ -31,6 +31,7 @@ Reply to this post if I missed yours
 - Baking with Anon: Homemade Pony Donuts! >>39672165 >>39674409 >>39930673
 - numget birthday party 🎉🎂🥳🎁 >>39930673
 - Fa-mare-ly Feud >>39930673 >>39932656
+- Filling Gaps in Established Lore:  The Crystal Empire
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/BjV7ZMwQBsZ9PVDt5
