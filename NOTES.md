@@ -21,7 +21,7 @@ Reply to this post if I missed yours
 - The Pony Preservation Project Q&A >>39798947
 - Free Hugs! >>39798947
 - Applejack Appreciation Appointment
-- Horsewords and (You): Evil Isn't
+- Horsewords and (You): Evil Isn't >>39932786
 - /mlp/ The Antithology Volume 3 >>39762777
 - Opening Ceremonies >>39930673
 - Closing Ceremonies >>39930673
