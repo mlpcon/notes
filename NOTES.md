@@ -1,6 +1,6 @@
 Reply to this post to suggest changes
 
-Updated source: https://ponepaste.org/6948 or https://github.com/mlpcon/notes/blob/master/NOTES.md
+Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
 - /mlp/ con 2023 will be held June 30-July 2, 2023
@@ -60,7 +60,8 @@ If you signed up with a different vendor name, reply to this post and let me kno
 
 # Organizer's to-do list
 Reply to post to suggest things I need to do but forgot to list here
-- Modify Web site and get it ready for 2023 (maybe this weekend)
 - Make sure CyTube is presentable
 - Keep up with schedule
 - Try to keep thread alive
+
+If thread dies during the week, I'll restart a new one on the weekend.
