@@ -30,8 +30,9 @@ Reply to this post if I missed yours
 - Of Plush and Plushmancy >>39930673
 - Baking with Anon: Homemade Pony Donuts! >>39672165 >>39674409 >>39930673
 - numget birthday party 🎉🎂🥳🎁 >>39930673
-- Fa-mare-ly Feud >>39930673 >>39932656
+- Fa-mare-ly Feud >>39930673 >>39932656 >>39988223
 - Filling Gaps in Established Lore:  The Crystal Empire
+- What are Zigger Beans? >>39992567
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/BjV7ZMwQBsZ9PVDt5
