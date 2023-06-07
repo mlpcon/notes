@@ -20,7 +20,7 @@ Reply to this post if I missed yours
 - Equestria At War Showcase: Hippogriffia >>39664605 >>39731607 >>39770008 >>39795707
 - The Pony Preservation Project Q&A >>39798947
 - Free Hugs! >>39798947
-- Applejack Appreciation Appointment
+- Applejack Appreciation Appointment >>39996507
 - Horsewords and (You): Evil Isn't >>39932786
 - /mlp/ The Antithology Volume 3 >>39762777
 - Opening Ceremonies >>39930673
