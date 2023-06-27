@@ -19,7 +19,6 @@ Reply to this post if I missed yours
 - 2023 NO SLAM JAM SPECTACULAR
 - Equestria At War Showcase: Hippogriffia >>39664605 >>39731607 >>39770008 >>39795707
 - The Pony Preservation Project Q&A >>39798947
-- Free Hugs! >>39798947
 - Applejack Appreciation Appointment >>39996507
 - Horsewords and (You): Evil Isn't >>39932786
 - /mlp/ The Antithology Volume 3 >>39762777
@@ -31,8 +30,10 @@ Reply to this post if I missed yours
 - Baking with Anon: Homemade Pony Donuts! >>39672165 >>39674409 >>39930673
 - numget birthday party 🎉🎂🥳🎁 >>39930673
 - Fa-mare-ly Feud >>39930673 >>39932656 >>39988223
-- Filling Gaps in Established Lore:  The Crystal Empire
-- What are Zigger Beans? >>39992567
+- anonfilly appreciation doodles with fanny
+- Fluttershy Sings The Smiths
+- taski.sai Shush is banned edition
+- Pony Arcade
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/BjV7ZMwQBsZ9PVDt5
@@ -54,6 +55,7 @@ If you signed up with a different panel name, reply to this post and let me know
 Reply to this post if I missed yours
 - NeighsayerPatches
 - soapone
+- Mare Fair
 
 # Vendors mentioned in thread but no app submitted yet
 If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/Kai7kmHhAx18TcMk9
@@ -63,7 +65,5 @@ If you signed up with a different vendor name, reply to this post and let me kno
 # Organizer's to-do list
 Reply to post to suggest things I need to do but forgot to list here
 - Make sure CyTube is presentable
-- Keep up with schedule
+- What if CyTube doesn't work???
 - Try to keep thread alive
-
-If thread dies during the week, I'll restart a new one on the weekend.
