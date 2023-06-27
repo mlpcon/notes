@@ -1,16 +1,22 @@
-Re-starting the thread with a new OP image.
-Con is in about a month now.
-Keep those panel apps and ideas coming in!
-If you have an idea for an awesome panel or wanna be a vendor, fill one of these bad boys out.
-Panels: https://forms.gle/BjV7ZMwQBsZ9PVDt5
-Vendors: https://forms.gle/Kai7kmHhAx18TcMk9
+Just a few days until /mlp/ con!
+If CyTube is still broken and we can't stream YouTube videos, uhhhh unless someone has another suggestion, we may have to do HAHcon rules: Publish a schedule with separate YouTube video/livestream links and have everyone independently go there when it's time.
+Really not ideal, any other suggestions?
 
-Reminder the con dates are June 30-July 2!
+Reminder the con dates are THIS FRIDAY - SUNDAY
+SCHEDULE: https://mlpcon.online/schedule.html
+SCHEDULE: https://mlpcon.online/schedule.html
+SCHEDULE: https://mlpcon.online/schedule.html
+
+VENDORS: https://mlpcon.online/vendors.html (I swear I'm going to get this updated today, please be patient)
+
+>How do I participate?
+Hopefully we'll be meeting up on CyTube and posting in the thread during the con.
+Panels may ask for audience participation and questions in thread or in CyTube chat (or worst case in YT chat).
 
 >What is /mlp/ con?
-Together we're going to organize an online convention by and for /mlp/
+Together we're holding an online convention by and for /mlp/
 It will focus on: 1) the show, 2) /mlp/, and 3) the fandom
-Check out some of our events from 2022 that are linked from this site: https://2022.mlpcon.online/schedule.html
+Check out our schedule: https://mlpcon.online/schedule.html
 
 >When is it?
 June 30-July 2
@@ -25,19 +31,15 @@ Pre-recorded videos made for the con viewed on CyTube
 During the con, most activity and interaction will occur on the con thread and/or CyTube
 
 >What now?
-- Sign up to host a panel/event https://forms.gle/BjV7ZMwQBsZ9PVDt5
-- Sign up to be a vendor https://forms.gle/Kai7kmHhAx18TcMk9
-- Discuss ideas about events/panels you'd like to host
-- Take the initiative and reach out to people who would make for a good interview, guests from the show or others in the fandom that aren't from the board (don't lie to them and don't pull a Spec; if you are uncomfortable actually performing the interview, we can get someone to help with that)
+- Post in thread about panels you're excited for
+- Help panelists prepare for their panels, some are asking for signups or information from (You)
 - Make some art of our con mascots
 - Host a panel or event or record a special video to be premiered during the con
 - Create short funny videos that could be shown during downtime (along with selections queued up by other congoers)
-- Create and maintain a planning document for the con that can be updated by the thread
 - Make a better web site
 - Be a CyTube janny who does it >for free
-- Organize and run a charity event (maybe for Mare Fair?)
 
-Last thread: >>39913463
+Last thread: >>39983689
 
 PLEASE KEEP EVERYTHING ON TOPIC, ABOUT /mlp/ con
 Discord drama and bait posts are off-topic
