@@ -30,6 +30,9 @@ Reply to this post if I missed yours
 - Baking with Anon: Homemade Pony Donuts! >>39672165 >>39674409 >>39930673
 - numget birthday party 🎉🎂🥳🎁 >>39930673
 - Fa-mare-ly Feud >>39930673 >>39932656 >>39988223
+- Amaré 2: Mare Waifu
+- Drawing Mares For (You)
+- Pony Nostalgia Zone >>40067968
 - anonfilly appreciation doodles with fanny
 - Fluttershy Sings The Smiths
 - taski.sai Shush is banned edition
