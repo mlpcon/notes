@@ -9,7 +9,7 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 - will try to schedule events so that overtly non-FiM stuff (EQG, G5) gets put into the secondary CyTube and not the primary one
 - there will be breaks between events (at least 15 minutes)
 - pon3.stream will be available to stream NSFW content
-- we will be streaming on CyTube
+- we will be streaming on watch.mlpcon.online due to the YouTube/CyTube fight
 - Spec is banned from hosting panels/events (carryover from last year, will stand unless there are objections)
 - The anons who ran the Minecraft server in previous years have announced they won't be doing it again this year due to lack of interest (if someone else wants to host, pls speak up)
 
@@ -21,7 +21,7 @@ Reply to this post if I missed yours
 - The Pony Preservation Project Q&A >>39798947
 - Applejack Appreciation Appointment >>39996507
 - Horsewords and (You): Evil Isn't >>39932786
-- /mlp/ The Antithology Volume 3 >>39762777
+- /mlp/ The Antithology Volume 3 >>39762777 >>40074096
 - Opening Ceremonies >>39930673
 - Closing Ceremonies >>39930673
 - Mare-itory Control 3 >>39721774 >>39930673 >>40067628
@@ -29,10 +29,10 @@ Reply to this post if I missed yours
 - Of Plush and Plushmancy >>39930673
 - Baking with Anon: Homemade Pony Donuts! >>39672165 >>39674409 >>39930673
 - numget birthday party 🎉🎂🥳🎁 >>39930673
-- Fa-mare-ly Feud >>39930673 >>39932656 >>39988223 >>40069994
+- Fa-mare-ly Feud >>39930673 >>39932656 >>39988223 >>40069994 >>40073553 >>40074263
 - Amaré 2: Mare Waifu
 - Drawing Mares For (You)
-- Pony Nostalgia Zone >>40067968
+- Pony Nostalgia Zone >>40067968 >>40075162
 - anonfilly appreciation doodles with fanny
 - Fluttershy Sings The Smiths
 - taski.sai Shush is banned edition
