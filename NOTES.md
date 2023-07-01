@@ -37,6 +37,7 @@ Reply to this post if I missed yours
 - Fluttershy Sings The Smiths
 - taski.sai Shush is banned edition
 - Pony Arcade
+- GMod Pony Machinima Tutorial >>40077156
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/BjV7ZMwQBsZ9PVDt5
