@@ -19,6 +19,7 @@ If you signed up with a different panel name, reply to this post and let me know
 - Antithology >>40884331
 - Antithology Post-Premiere Discussion/Q&A >>40884331
 - Pre-recorded music panel >>40884791
+- Sermonanon >>40892776
 
 # Vendors submitted
 Reply to this post if I missed yours
