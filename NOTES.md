@@ -3,7 +3,7 @@ Reply to this post to suggest changes
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
-- /mlp/ con 2024 is on and will last for three days (Fri-Sun) sometime in June (survey to pick weekdays: https://forms.gle/6YHn1R82nbwtqF5u9)
+- /mlp/ con 2024 is on and will last for three days (Fri-Sun) sometime in June (survey to pick the exact date: https://forms.gle/xb8DhGyCeySVqcpQ9)
 - There will be vendors
 - There will be a web site
 - CyTube will be used
