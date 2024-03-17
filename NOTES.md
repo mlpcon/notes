@@ -21,6 +21,7 @@ If you signed up with a different panel name, reply to this post and let me know
 - Pre-recorded music panel >>40884791
 - Sermonanon >>40892776
 - How to start a business >>40899775
+- Fallen Oak livestream >>40913635
 
 # Vendors submitted
 Reply to this post if I missed yours
@@ -28,6 +29,7 @@ Reply to this post if I missed yours
 # Vendors mentioned in thread but no app submitted yet
 If you are planning to be a vendor, make sure you sign-up here so you can get on the site <<FORM LINK HERE TBA>>
 If you signed up with a different vendor name, reply to this post and let me know
+- Fallen Oak Equine Rescue and Rehabilitation >>40913635
 
 # Organizer's to-do list
 Reply to post to suggest things I need to do but forgot to list here
