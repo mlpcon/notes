@@ -3,7 +3,7 @@ Reply to this post to suggest changes
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
-- /mlp/ con 2024 is on and will last for three days (Fri-Sun) sometime in June (survey to pick the exact date: https://forms.gle/xb8DhGyCeySVqcpQ9)
+- /mlp/ con 2024 will be June 14-16!
 - There will be vendors
 - There will be a web site
 - CyTube will be used
@@ -34,5 +34,5 @@ If you signed up with a different vendor name, reply to this post and let me kno
 # Organizer's to-do list
 Reply to post to suggest things I need to do but forgot to list here
 - Try to keep thread alive
-- Post results of survey around March 9 (this thread or a new thread if necessary)
 - Archive 2023's web site and create new one for 2024
+- Create panelist and vendor applications (targeting weekend of 4/6)
