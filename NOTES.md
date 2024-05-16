@@ -27,6 +27,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Closing Ceremonies
 - HLVRAIMLP 3
 - Mare-itory Control V
+- Applejack Appreciation Appointment
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/zKWHAkbRRutm93rn6
