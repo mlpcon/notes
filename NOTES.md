@@ -25,7 +25,8 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Analyzing Cringe: The "I'm on a Yacht" Music Video >>41086717
 - Making comics with frenchanon >>41090808 >>41095362
 - Applejack Appreciation Appointment >>41094286
-- Cuisine Canter: Saddling Up for a Six-Course Feast >>41094661
+- Dinner With Anon >>>>41094661
+- Cuisine Canter: Saddling Up for a Six-Course Feast 
 - Painting with Lyric
 
 # Panels mentioned in thread but no app submitted yet
