@@ -17,17 +17,16 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Fallen Oak farm tour and q&a >>40913635
 - Filly 101: How to draw filly >>40992531
 - Traditional art draw panel >>40994454
-- Horsewords & (You): The Place To Be >>41005932
+- Horsewords & (You): The Place To Be >>41005932 >>41095524
+- Closing Ceremonies >>41085167
+- HLVRAIMLP 3 >>41085167
+- Mare-itory Control V >>41085167
+- Opening Ceremonies >>41085167
+- Analyzing Cringe: The "I'm on a Yacht" Music Video >>41086717
+- Making comics with frenchanon >>41090808 >>41095362
+- Applejack Appreciation Appointment >>41094286
+- Cuisine Canter: Saddling Up for a Six-Course Feast >>41094661
 - Painting with Lyric
-- My Dinner With Anon
-- Making comics with frenchanon
-- Cuisine Canter: Saddling Up for a Six-Course Feast
-- Analyzing Cringe: The "I'm on a Yacht" Music Video
-- Opening Ceremonies
-- Closing Ceremonies
-- HLVRAIMLP 3
-- Mare-itory Control V
-- Applejack Appreciation Appointment
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/zKWHAkbRRutm93rn6
