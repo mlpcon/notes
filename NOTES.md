@@ -14,6 +14,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - /mlp/ the Antithology Volume 4 >>40884331
 - Antithology Post-Premiere Wrap Up Party >>40884331
 - Marecurial Sonority >>40884791
+- Sermons on Seeing The Princesses Holy Light >>40892776 >>41105325
 - Fallen Oak farm tour and q&a >>40913635
 - Filly 101: How to draw filly >>40992531
 - Traditional art draw panel >>40994454
@@ -34,7 +35,6 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/zKWHAkbRRutm93rn6
 If you signed up with a different panel name, reply to this post and let me know
 - Genuine IRL concert >>40882654
-- Sermonanon >>40892776
 - How to start a business >>40899775
 - Making a small business >>40899775
 - How to make lists >>40966392
