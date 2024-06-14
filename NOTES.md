@@ -27,6 +27,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Making comics with frenchanon >>41090808 >>41095362
 - Applejack Appreciation Appointment >>41094286
 - Dinner With Anon >>41094661
+- Game jam showcase! Love edition >>41155057
 - Cuisine Canter: Saddling Up for a Six-Course Feast 
 - Painting with Lyric
 - Rock and Pones 2: Revenge of the Lyrants
