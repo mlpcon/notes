@@ -1,7 +1,7 @@
 Survey will be live until next weekend.
 If the thread dies before then, a new thread will be made with the results of the survey and the next survey.
 
-Reply to this post to suggest changes
+Reply to this post to suggest changes.
 
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
