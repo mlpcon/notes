@@ -6,7 +6,7 @@ Reply to this post to suggest changes.
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
-- TBD
+- Mare Fair will be held on a Fri - Sun in July 2025
 
 # Panels submitted
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
@@ -15,7 +15,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/TBD
 If you signed up with a different panel name, reply to this post and let me know
-- TBD
+- Pony Court >>42035140
 
 # Vendors submitted
 Reply to this post if I missed yours
