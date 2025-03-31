@@ -6,7 +6,7 @@ Reply to this post to suggest changes.
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
-- Mare Fair will be held on a Fri - Sun in July 2025
+- /mlp/ con 2025 will be held on July 4 - 6
 
 # Panels submitted
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
