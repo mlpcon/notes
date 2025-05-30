@@ -13,9 +13,9 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - 12 Angry Mares - PONY COURT >>42035140 >>42205071
 - Blondie's Raucous Regalings: Real Edition >>42194709
 - Blondie's Vacuous Vulgarities >>42194709
-- Gamejam showcase: Your choice edition! >>42197056
+- Gamejam showcase: Your choice edition! >>42197056 >>42217963
 - Saturday Show Premiere >>42201911
-- Lesson Zero: A Plot Analysis >>42203173
+- Lesson Zero: A Plot Analysis >>42205537
 - Marecurial Sonority Mk. II
 - Amending Fences 10th Anniversary
 - Fluffy pony dating SIM
@@ -36,6 +36,9 @@ If you are going to host one of these panels, make sure you sign-up here so you 
 If you signed up with a different panel name, reply to this post and let me know
 - How to run a pony business >>42072547
 - Opening video animation >>42172006
+- Ponyvania panel >>42224327
+- Interview panel >>42229111
+- Russian fanfiction panel >>42231641
 
 # Vendors submitted
 Reply to this post if I missed yours
