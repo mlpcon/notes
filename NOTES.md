@@ -16,6 +16,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Gamejam showcase: Your choice edition! >>42197056 >>42217963
 - Saturday Show Premiere >>42201911
 - Lesson Zero: A Plot Analysis >>42205537
+- Russian Fanfiction overview >>42231641
 - Marecurial Sonority Mk. II
 - Amending Fences 10th Anniversary
 - Fluffy pony dating SIM
@@ -38,7 +39,6 @@ If you signed up with a different panel name, reply to this post and let me know
 - Opening video animation >>42172006
 - Ponyvania panel >>42224327
 - Interview panel >>42229111
-- Russian fanfiction panel >>42231641
 
 # Vendors submitted
 Reply to this post if I missed yours
