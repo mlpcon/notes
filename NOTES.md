@@ -17,6 +17,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Saturday Show Premiere >>42201911
 - Lesson Zero: A Plot Analysis >>42205537
 - Russian Fanfiction overview >>42231641
+- Live CYOA III: Anonfilly Goes to Manehatten >>42238783
 - Marecurial Sonority Mk. II
 - Amending Fences 10th Anniversary
 - Fluffy pony dating SIM
