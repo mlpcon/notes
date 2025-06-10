@@ -32,6 +32,9 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - dicemares
 - Applejack Appreciation Appointment
 - Fucking Around Interdimensionally
+- Worms Armageddon Tournament: Good vs Evil
+- Fallen Oak Equine Rescue
+- RarityFest
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/TBD
