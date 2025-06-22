@@ -14,7 +14,6 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Blondie's Raucous Regalings: Real Edition >>42194709
 - Blondie's Vacuous Vulgarities >>42194709
 - Gamejam showcase: Your choice edition! >>42197056 >>42217963 >>42280851
-- Saturday Show Premiere >>42201911
 - Lesson Zero: A Plot Analysis >>42205537
 - Russian Fanfiction overview >>42231641
 - Live CYOA III: Anonfilly Goes to Manehatten >>42238783
