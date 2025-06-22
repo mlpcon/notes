@@ -28,7 +28,6 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Traditional art draw panel
 - PuzzlePone Time
 - Foreign Mares at Your Door
-- dicemares
 - Applejack Appreciation Appointment
 - Fucking Around Interdimensionally
 - Worms Armageddon Tournament: Good vs Evil
