@@ -62,5 +62,6 @@ If you signed up with a different vendor name, reply to this post and let me kno
 
 # Organizer's to-do list
 Reply to post to suggest things I need to do but forgot to list here
-- Figure out how to get schedule on the website
+- Get CyTube channel ready
+- Keep website and schedule up-to-date
 - Try to keep thread alive
