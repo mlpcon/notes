@@ -52,6 +52,8 @@ Reply to this post if I missed yours
 - Rocket's Equine Outpost
 - OTL Crafts
 - soapone
+- Mare Fair
+- The Gifted Unicorn
 
 # Vendors mentioned in thread but no app submitted yet
 If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/TBD
