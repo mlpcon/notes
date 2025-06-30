@@ -37,6 +37,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Hangmare
 - HLVRAIMLP: BEST OF
 - GMod Machinima Making 3
+- An interview with the creator of 'Unboxing of 2012 My Little Pony toys at McDonalds' and watch party.
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/TBD
