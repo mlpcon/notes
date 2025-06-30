@@ -36,6 +36,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - RarityFest
 - Hangmare
 - HLVRAIMLP: BEST OF
+- GMod Machinima Making 3
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/TBD
