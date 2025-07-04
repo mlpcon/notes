@@ -56,6 +56,7 @@ Reply to this post if I missed yours
 - Mare Fair
 - The Gifted Unicorn
 - Fallen Oak
+- NeighCon
 
 # Vendors mentioned in thread but no app submitted yet
 If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/TBD
