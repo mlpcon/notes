@@ -17,6 +17,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Detailed pony vectors in inkscape >>42288919
 - A Mare Fair Lead Meeting >>42318188
 - Watercolors Mares >>42315939
+- Mare Stare Competition >>42321869
 - Marecurial Sonority Mk. II
 - Amending Fences 10th Anniversary
 - Fluffy pony dating SIM
