@@ -1,5 +1,5 @@
-Day 1 is almost over, how's everypony doing?
-You still alive?  Enjoying the panels?
+Day 2 is well underway, a lot has happened, but a lot more remains!
+We're only about halfway through the con.
 
 >What is /mlp/ con?
 Together we're holding an online convention by and for /mlp/
@@ -22,7 +22,7 @@ During the con, most activity and interaction will occur on the con thread and/o
 - Create short funny videos that could be shown during downtime
 - Be a CyTube janny who does it >for free
 
-Last thread: >>42320732
+Last thread: >>42325772
 
 PLEASE KEEP EVERYTHING ON TOPIC, ABOUT /mlp/ con
 Discord drama and bait posts are off-topic
