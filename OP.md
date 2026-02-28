@@ -1,27 +1,38 @@
-It's all over.
-Feel free to talk about the weekend, what you liked most, what you hated.
-And maybe gather together some memories (links, etc.) so we can archive everything.
+Welcome to the first planning thread for /mlp/ con 2026!
 
->What was /mlp/ con?
-Together we held an online convention by and for /mlp/
-It focused on: 1) the show, 2) /mlp/, and 3) the fandom
-Check out the website: https://mlpcon.online/
+>What is /mlp/ con?
+Together we're going to organize an online convention by and for /mlp/
+It will focus on: 1) the show, 2) /mlp/, and 3) the fandom
+Check out some of our events from 2025 that are linked from this site: https://mlpcon.online/schedule.html
 
->When was it?
-July 4-6, 2025
+>When is it?
+These planning threads will help figure this out!
+Fill out the survey at https://forms.gle/GGtQaWWwfCjFce4t9 to help decide
 
->How was the con held?
+>How will the con be held?
 Special events in this thread or others
 Live streams on YouTube, Picarto, or private streaming platforms, broadcast via CyTube
 Pre-recorded videos made for the con viewed on CyTube
-During the con, most activity and interaction occurred on the con thread and/or CyTube
+During the con, most activity and interaction will occur on the con thread and/or CyTube
 
 >What now?
-- Talk about your experiences to stave off PCD
-- Gather together and archive memories (links, etc.)
-- Keep the event thread bumped
+- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
+- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
+- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
+- Make new OP images representing the con this year!
+- Make cute mascot art of Contard and Conpone
+- Discuss how we can make this year's con better here in thread
+- Take the initiative and reach out to people who would make for a good interview, guests from the show or others in the fandom that aren't from the board (don't lie to them; if you are uncomfortable actually performing the interview, we can get someone to help with that)
+- Make a new con mascot
+- Keep the planning thread bumped
+- Host a panel or event or record a special video to be premiered during the con
+- Create short funny videos that could be shown during downtime
+- Help organize panelists
+- Create and maintain a planning document for the con that can be updated by the thread
+- Be a CyTube janny who does it >for free
+- Organize and run a charity event (for Fallen Oak, Days End, or any charity you want)
 
-Last thread: >>42330512
+Last thread (from 2025): >>42333738
 
 PLEASE KEEP EVERYTHING ON TOPIC, ABOUT /mlp/ con
 Discord drama and bait posts are off-topic
