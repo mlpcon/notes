@@ -3,7 +3,11 @@ Reply to this post to suggest changes.
 Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
-- TBD
+- There will be a /mlp/ con 2026
+- It will be three days long
+- There will be vendors
+- There will be a website
+- We will be using CyTube again
 
 # Panels submitted
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
