@@ -4,7 +4,7 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
 - There will be a /mlp/ con 2026
-- It will be three days long
+- It will be on a Fri - Sun
 - It will be sometime in July 2026
 - There will be vendors
 - There will be a website
