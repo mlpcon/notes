@@ -4,8 +4,7 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Decisions made
 - There will be a /mlp/ con 2026
-- It will be on a Fri - Sun
-- It will be sometime in July 2026
+- It will be on July 10 - 12
 - There will be vendors
 - There will be a website
 - We will be using CyTube again
