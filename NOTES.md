@@ -14,7 +14,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - TBD
 
 # Panels mentioned in thread but no app submitted yet
-If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/TBD
+If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/yLJqdyVuoLA8AHo57
 If you signed up with a different panel name, reply to this post and let me know
 - TBD
 
@@ -23,7 +23,7 @@ Reply to this post if I missed yours
 - TBD
 
 # Vendors mentioned in thread but no app submitted yet
-If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/TBD
+If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/KmzN51i8GVC3Y9Wt6
 If you signed up with a different vendor name, reply to this post and let me know
 - TBD
 
