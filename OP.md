@@ -1,4 +1,4 @@
-Welcome to the first planning thread for /mlp/ con 2026!
+Updates go here
 
 >What is /mlp/ con?
 Together we're going to organize an online convention by and for /mlp/
@@ -6,8 +6,7 @@ It will focus on: 1) the show, 2) /mlp/, and 3) the fandom
 Check out some of our events from 2025 that are linked from this site: https://mlpcon.online/schedule.html
 
 >When is it?
-These planning threads will help figure this out!
-Fill out the survey at https://forms.gle/GGtQaWWwfCjFce4t9 to help decide
+/mlp/ con 2024 will be held July 10 - 12
 
 >How will the con be held?
 Special events in this thread or others
@@ -16,11 +15,11 @@ Pre-recorded videos made for the con viewed on CyTube
 During the con, most activity and interaction will occur on the con thread and/or CyTube
 
 >What now?
-- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
-- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
-- Take the survey at https://forms.gle/GGtQaWWwfCjFce4t9
+
+- Apply to host a panel or event at https://forms.gle/yLJqdyVuoLA8AHo57
+- Apply to be a vendor at https://forms.gle/KmzN51i8GVC3Y9Wt6
 - Make new OP images representing the con this year!
-- Make cute mascot art of Contard and Conpone
+- Recruit others to be panelists or vendors
 - Discuss how we can make this year's con better here in thread
 - Take the initiative and reach out to people who would make for a good interview, guests from the show or others in the fandom that aren't from the board (don't lie to them; if you are uncomfortable actually performing the interview, we can get someone to help with that)
 - Make a new con mascot
@@ -32,7 +31,7 @@ During the con, most activity and interaction will occur on the con thread and/o
 - Be a CyTube janny who does it >for free
 - Organize and run a charity event (for Fallen Oak, Days End, or any charity you want)
 
-Last thread (from 2025): >>42333738
+Last thread: >>43074004
 
 PLEASE KEEP EVERYTHING ON TOPIC, ABOUT /mlp/ con
 Discord drama and bait posts are off-topic
