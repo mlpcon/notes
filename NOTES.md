@@ -11,7 +11,18 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Panels submitted
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
-- TBD
+- Pinkie Pie Appreciation Party!
+- MareDoom #2
+- PonePuzzle Time: [memeword] Edition
+- Game Jam showcase: No movment!
+- Pononnymous_ESL live
+- Game Jam revisit. Late night gaming
+- Let's draw an episode together
+- con straight outta chyna
+- BCS's stream
+- Marecurial Sonority Mk. III: Revengeance
+- /mlp/ the Antithology Volume 6
+- Mare Doom #2
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/yLJqdyVuoLA8AHo57
