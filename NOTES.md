@@ -30,6 +30,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - That Artist is a Spy! 2
 - Smash or Pass - Legends of Equestria Edition
 - Karaoke!
+- Every Season 1 Mare Ranked By Their Color Palette Accuracy
 
 # Panels mentioned in thread but no app submitted yet
 If you are going to host one of these panels, make sure you sign-up here so you can get on the schedule https://forms.gle/yLJqdyVuoLA8AHo57
