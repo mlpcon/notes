@@ -28,7 +28,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - My Little Tournament (name in progress)
 - Starlight Appreciation Panel
 - Applejack Appreciation Appointment
-- That Artist is a Spy! 2
+- That Artist Is a Spy! 2 - Team Battle
 - Smash or Pass - Legends of Equestria Edition
 - Karaoke!
 - Every Season 1 Mare Ranked By Their Color Palette Accuracy
