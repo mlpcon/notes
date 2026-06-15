@@ -11,6 +11,7 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 
 # Panels submitted
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
+- MLP : The very early days >>3299783 (CANCELLED)
 - BCS's stream
 - Pononnymous_ESL live
 - Marecurial Sonority Mk. III: Revengeance
