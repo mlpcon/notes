@@ -25,7 +25,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - Game Jam revisit. Late night gaming
 - Game Jam showcase: No movment!
 - Reveal
-- My Little Tournament (name in progress)
+- Unreal Friendship.
 - Starlight Appreciation Panel
 - Applejack Appreciation Appointment
 - That Artist Is a Spy! 2 - Team Battle
