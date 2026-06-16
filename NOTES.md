@@ -18,7 +18,7 @@ Reply to this post if I missed yours.  If you haven't yet, post about your panel
 - con straight outta chyna
 - Pinkie Pie Appreciation Party!
 - Let's draw an episode together >>43153291
-- PonePuzzle Time: [memeword] Edition
+- Pone Puzzle Time: Shitpost Edition
 - Mare Doom #2
 - /mlp/ the Antithology Volume 6
 - MareDoom #2
