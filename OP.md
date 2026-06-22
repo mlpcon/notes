@@ -9,7 +9,7 @@ It will focus on: 1) the show, 2) /mlp/, and 3) the fandom
 Check out some of our events from 2025 that are linked from this site: https://2025.mlpcon.online/schedule
 
 >When is it?
-/mlp/ con 2024 will be held July 10 - 12
+/mlp/ con 2026 will be held July 10 - 12
 
 >How will the con be held?
 Special events in this thread or others
