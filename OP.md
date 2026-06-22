@@ -6,7 +6,7 @@ If you want to lend a hoof, please reply here.
 >What is /mlp/ con?
 Together we're going to organize an online convention by and for /mlp/
 It will focus on: 1) the show, 2) /mlp/, and 3) the fandom
-Check out some of our events from 2025 that are linked from this site: https://mlpcon.online/schedule.html
+Check out some of our events from 2025 that are linked from this site: https://2025.mlpcon.online/schedule
 
 >When is it?
 /mlp/ con 2024 will be held July 10 - 12
