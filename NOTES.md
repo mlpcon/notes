@@ -13,6 +13,7 @@ Updated source: https://github.com/mlpcon/notes/blob/master/NOTES.md
 Reply to this post if I missed yours.  If you haven't yet, post about your panel in thread to get others hyped.
 - MLP : The very early days >>3299783 (CANCELLED)
 - /mlp/con Plays /mlp/ >>43303160
+- Of Men & Mares: Storytime for (You) >>43303943
 - BCS's stream
 - Pononnymous_ESL live
 - Marecurial Sonority Mk. III: Revengeance
