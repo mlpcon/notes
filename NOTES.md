@@ -55,6 +55,7 @@ If you signed up with a different panel name, reply to this post and let me know
 Reply to this post if I missed yours
 - Mare Fair 2026
 - Keep Snowpity
+- Jakusi
 
 # Vendors mentioned in thread but no app submitted yet
 If you are planning to be a vendor, make sure you sign-up here so you can get on the site https://forms.gle/KmzN51i8GVC3Y9Wt6
