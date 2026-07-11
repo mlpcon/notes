@@ -29,7 +29,7 @@ During the con, most activity and interaction will occur on the con thread and/o
 - Be a CyTube janny who does it >for free
 - Organize and run a charity event (for Fallen Oak, Days End, or any charity you want)
 
-Last thread: >>43291039
+Last thread: >>43342672
 
 PLEASE KEEP EVERYTHING ON TOPIC, ABOUT /mlp/ con
 Discord drama and bait posts are off-topic
